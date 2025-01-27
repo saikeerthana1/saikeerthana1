@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://saikeerthana1.github.io/portfolio/](https://saikeerthana1.github.io/portfolio/)
 
-- 📫 How to reach me **ashwinisaikeerthana@gmail.com**
+- 📫 How to reach me **ashwiniyellapu192002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
